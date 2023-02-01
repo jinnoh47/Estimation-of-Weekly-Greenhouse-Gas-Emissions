@@ -1,1 +1,0 @@
-# Estimation-of-Weekly-Greenhouse-Gas-Emissions
